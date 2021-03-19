@@ -1,0 +1,1 @@
+Visual Code 500g, github 100ml, page 80g, Simple Code 200g, master 50ml and a Slate theme coloring 
